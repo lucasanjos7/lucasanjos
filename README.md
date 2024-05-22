@@ -11,6 +11,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 ## Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
-@lucasanjos
+@lucasanjos7
 
 ![](https://media1.tenor.com/m/VYrnM4wMk6MAAAAC/squidward-tentacles-nickelodeon.gif)
